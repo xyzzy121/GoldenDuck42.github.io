@@ -1,0 +1,1 @@
+# GoldenDuck42.github.io
